@@ -1,11 +1,12 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/2c2688bc7debcdefeb219a6796f4ba47/59f1b81df0b8311f-e8/s400x600/af9bc5edb29581375a50f18b44a74049ca7880fa.pnj"<img width="300" height="274" alt="image" src="https://github.com/user-attachments/assets/ba884576-3efb-4932-9968-55958720143d" />
+  <img src="https://i6.glitter-graphics.org/pub/324/324936rgth63d6mn.png"<img width="120" height="60" alt="image" src="https://github.com/user-attachments/assets/4f3c0075-781e-4feb-8f6b-8cf1b562bc1a" />
+ 
 </p>
 
 
-<p align="center"><a href="https://visitorbadge.io/status?path=Ire-landd"><img src="https://api.visitorbadge.io/api/visitors?path=Ire-landd&label=%E2%99%A1&labelColor=%23ffffdd&countColor=%23ffdee8" /></a></p>
+<p align="center"><a href="https://visitorbadge.io/status?path=Ire-landd"><img src="https://api.visitorbadge.io/api/visitors?path=Ire-landd&label=%E2%98%98%EF%B8%8E&labelColor=%23ff883e&countColor=%23169b62"  /></a> </a><img  /></a></p>
 
-
+<p align="center"><a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/395/395918gkqdh5vryr.jpg" width=159 height=159 border=0></a><br><a   /></a> </a><img  /></a></p>
 
 
 
