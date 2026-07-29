@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i6.glitter-graphics.org/pub/324/324936rgth63d6mn.png"<img width="120" height="60" alt="image" src="https://github.com/user-attachments/assets/4f3c0075-781e-4feb-8f6b-8cf1b562bc1a" />
+  <img src="https://files.catbox.moe/zkv9vr.gif" />
  
 </p>
 
@@ -8,5 +8,6 @@
 
 <p align="center"><a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/395/395918gkqdh5vryr.jpg" width=159 height=159 border=0></a><br><a   /></a> </a><img  /></a></p>
 
+4 HOURS FIGURING OUT THIS SHIT JUST TO HAVE A BOUNCING PONY? HELL YEAH, WORTH IT!!!
 
 
