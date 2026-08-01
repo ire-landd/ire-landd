@@ -1,3 +1,6 @@
+       pls. r ead rent ry.co/ire—landd
+
+
 <p align="center">
   <img src="https://files.catbox.moe/zkv9vr.gif" />
  
