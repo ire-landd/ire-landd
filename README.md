@@ -1,4 +1,4 @@
-       pls. r ead rent ry.co/ire—landd
+
 
 
 <p align="center">
@@ -11,6 +11,13 @@
 
 <p align="center"><a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/395/395918gkqdh5vryr.jpg" width=159 height=159 border=0></a><br><a   /></a> </a><img  /></a></p>
 
-4 HOURS FIGURING OUT THIS SHIT JUST TO HAVE A BOUNCING PONY? HELL YEAH, WORTH IT!!!
 
+
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315alfuetk2k5fx6nm4kkbjvp6za&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff">
+  </a>
+</p>
+was that a dyson hoover
 
